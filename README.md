@@ -1,0 +1,1 @@
+# TRI_Report_Bank-of-Thailand_2026
